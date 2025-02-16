@@ -8,7 +8,7 @@ Email: gotehmbaza@gmail.com
 
 Phone: +2348136320012
 
-LinkedIn: linkedin.com/in/goteh-mbaza-b1732a351
+LinkedIn: https://linkedin.com/in/goteh-mbaza-b1732a351
 
 # Professional Summary
 
